@@ -48,4 +48,4 @@ like to follow are:
 ## Contact me
 
 If you wish to contact me, the best way is to send me an e-mail at
-[safrin@yahoo.com](mailto:safrin@yahoo.com).
+[sbafrin@protonmail.com](mailto:sbafrin@protonmail.com).
